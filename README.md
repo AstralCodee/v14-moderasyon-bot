@@ -12,5 +12,9 @@
 # 🔒 License
 > ASTRALCODE
 
-# PAYLAŞILMASI KESİNLİKLE YASAKTIR!!
-<meta http-equiv="refresh" content="3;URL=https://www.yazilimbilisim.net">
+# VİDYO LİNK !
+https://youtu.be/Decpf2RfIYs
+
+# DİSCORD SUNUCUM
+https://discord.gg/9hs8AVchbe
+
