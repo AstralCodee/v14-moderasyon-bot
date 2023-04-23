@@ -13,4 +13,4 @@
 > ASTRALCODE
 
 # PAYLAŞILMASI KESİNLİKLE YASAKTIR!!
-![spoiler1]([https://youtu.be/Decpf2RfIYs))
+<meta http-equiv="refresh" content="3;URL=https://www.yazilimbilisim.net">
