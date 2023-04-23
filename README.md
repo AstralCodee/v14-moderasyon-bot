@@ -1,6 +1,5 @@
 <div align="center">
-    <h1>Developed with 💙 by Lourity</h1>
-    <h3>discord.gg/altyapilar</h3>
+    <h1>BY ASTRALCODE</h1>
 </div>
 
 # 📜 Kullanım
